@@ -8,3 +8,4 @@
 Романенко Марія Володимирівна <br>КВ-94
 
 https://docs.google.com/document/d/1XHY5epiZF1immbGHKusSW0wXRrtamU1DUJFDBDQWuLI/edit?usp=sharing
+https://docs.google.com/document/d/1_r7z_LNDh4f8Gz2-AkH8aCrv-gp_3lh0WfNTNcn1_dc/edit?usp=sharing
